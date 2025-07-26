@@ -26,3 +26,33 @@
 - Work on consistency of soft drop shots
 - Practice recognizing more opponent body language cues
 - Focus on smooth transition movements
+
+## July 25, 2025
+
+### New Techniques Learned
+
+1. **Strategic Dinking**
+   - Dinking is not just about getting the ball over the net
+   - Target opponent's weak spots - usually left side for right-handed players
+   - Add spin or slice to force difficult returns
+   - Avoid "dead dinks" (easy forehand feeds to opponent)
+   - When receiving dead dinks: be aggressive - smash back or use strategic lob
+
+2. **Ready Position and Court Awareness**
+   - Always maintain ready position: squatting down, agile stance
+   - Stay alert and watch opponent's body language and paddle position
+   - Anticipate where the ball is coming based on opponent's setup
+   - Be proactive - go for the ball rather than waiting passively
+   - Key insight: Reading opponent's positioning is as important as ball placement
+
+### Practice Focus
+- Work on targeted dinking to opponent's backhand/weak side
+- Practice adding spin and slice to dinks
+- Improve ready position consistency and court awareness
+- Develop better anticipation skills by watching opponent movements
+
+### Next Session Goals
+- Focus on consistent spin/slice dinks
+- Practice aggressive responses to dead dinks
+- Work on maintaining proper ready position throughout rallies
+- Improve reaction time and anticipation
