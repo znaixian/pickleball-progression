@@ -56,3 +56,10 @@
 - Practice aggressive responses to dead dinks
 - Work on maintaining proper ready position throughout rallies
 - Improve reaction time and anticipation
+
+## July 28, 2025
+
+### New Techniques Learned
+
+1. **Enhanced Court Awareness and Ready Position**
+   - Keenly observe your opponent's body movements and paddle position; the other essential habit is to maintain a squat in a lower baseline position, bringing your paddle down.
